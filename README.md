@@ -6,3 +6,4 @@ O Pudim  eu coloquei porque não gosto de pudim de chocolate, mas gosto do tradi
 - Estou aprendendo a usar o GitHub na escola, pela Aulura.
 - Estou fazendo tarefas no GitHub.
 - Espero conseguir fazer as tarefas.🫥
+[](https://media1.tenor.com/m/Z5x6xrH6_AQAAAAC/cat-kissing.gif)
